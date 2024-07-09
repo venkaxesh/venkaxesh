@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning a Master of Chemistry 
 - 💞️ I’m looking to collaborate on Chemistry 
 - 📫 How to reach me : venkaxesh@gmail.com
-- 😄 Pronouns: he/her
+- 😄 Pronouns: he/him/his
 - ⚡ Fun fact: NA
 
 <!---
